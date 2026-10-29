@@ -1,0 +1,1 @@
+User researched 株式会社コアモバイル (Core Mobile Inc.) and associated person 山川壽史 (Toshifumi Yamakawa); company is a small Tokyo-based IT/SaaS and app development firm with no documented fraud, regulatory sanctions, or legal issues found in public sources
